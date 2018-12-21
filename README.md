@@ -6,3 +6,6 @@ well that said i hope all is cool
 for everybody i shall encounter here .
 I naturally never done anything like this 
 so it can never be anything important , that i do .
+And it all being chaotic , 
+i definitively lack oversight .
+It must be awkward .
